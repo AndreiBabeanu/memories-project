@@ -1,6 +1,6 @@
 # Memories
 
-![Memories]([url=https://ibb.co/6wnY70D][img]https://i.ibb.co/vqw164L/Memories-capture.png[/img][/url])
+![Memories](https://i.ibb.co/YQR2FBf/Memories-capture.png)
 
 ## Check out the link
 
